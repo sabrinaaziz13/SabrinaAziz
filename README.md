@@ -10,4 +10,4 @@ I am a purpose-driven software engineer who loves problem solving to make life e
 -  I loooove flying my drone around NYC and one day, all around the world!
 -  You can find me doing any fun activities such as: 
 ice-skating, playing volleyball, climbing a rope like people do in the military, shooting a bow and arrow, any kind of gaming and most recently doing VR and fighting zombies!
--   Oh and I love films :film_frames:
+-   Oh and I love films :relaxed:
