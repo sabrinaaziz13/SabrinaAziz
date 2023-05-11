@@ -8,5 +8,6 @@ https://www.linkedin.com/in/sabrinaaziz1/
 # Fun Facts
 1. I was born and raised and currently based in NYC 
 2. I loooove flying my drone around NYC and one day, all around the world!
-3. You can find me doing any fun activities such as: ice-skating, playing volleyball, climbing a rope like people do in the military, shooting a bow and arrow, any kind of gaming and most recently doing VR and fighting zombies!
+3. You can find me doing any fun activities such as: 
+ice-skating, playing volleyball, climbing a rope like people do in the military, shooting a bow and arrow, any kind of gaming and most recently doing VR and fighting zombies!
 4.  Oh and I love films :]
